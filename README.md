@@ -1,2 +1,2 @@
 # izabellacreates
-GitHub Pages
+Please enter https://izabellacreates.com/home.html.
