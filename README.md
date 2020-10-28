@@ -1,3 +1,3 @@
 # izabellacreates
 
-My portfolio webiste. I am a ux/ui designer.
+My portfolio. I am an experienced product designer.
